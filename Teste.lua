@@ -1,1 +1,0 @@
-https://systeminformer.com/downloads
